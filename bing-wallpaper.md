@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-07-03 | [Ceiling of the Temple of Esna, Egypt (© Nick Brundle Photography/Getty Images)](https://cn.bing.com/th?id=OHR.TempleEsna_EN-US1999215513_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-06-23 | [Quinault rainforest, Olympic National Park, Washington state (© Chris Moore/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.QuinaultFerns_EN-US6436576493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-06-22 | [King penguin father checking egg (© McDonald Wildlife Photography Inc./Getty Images)](https://cn.bing.com/th?id=OHR.EggDad_EN-US6390221455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
